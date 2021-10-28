@@ -1,8 +1,11 @@
 # the origin
 
-shush, i'm playing, learning, and working with anything that i like, that i can, and that i want. hopefully not harming and hurting the others.
+#selitekk... shush, i'm playing, learning, and working.
+
+the origin is straight-line.org, that is a website as my receipt for anything while i’m playing, learning, and working with anything that i like, that i can, and that i want. hopefully not harming and hurting others.
 
 read more here:
 https://github.com/the-aha-llf/the-origin/wiki
 
-# © 2021 by @MyReceipt - AMK - AHA. LLF.
+
+# © 1983 by @MyReceipt - AMK - AHA. LLF.

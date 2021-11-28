@@ -8,4 +8,4 @@ read more here:
 https://github.com/the-aha-llf/the-origin/wiki
 
 
-# © 1983 by @MyReceipt - AMK - AHA. LLF.
+#### © 1983 by @myreceipt - amk - aha. llf.

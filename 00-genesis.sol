@@ -37,21 +37,22 @@
  *
  *
  *  hi, how are your today?!?!
- *  this is not the permanent sanctuary (a save place for the @f!3T@d!$) since the 1st @f!3T@d!$ only has limited time to reach his dream target (already written below).
+ *  this is not the permanent sanctuary (a save place for the 47-13-74-015 clan) since the 1st 47-13-74-015
+ *  only has limited time to reach his dream target (already written below).
  *
  *  permanently - continuesly dream target: kapan aku mati? [updated by straight-line.org]
  *    see the world
  *    be back to our super lord
- *    build + develop to generate the clan
- *      children of live love and label
+ *    build + develop to generate the clan - check!
+ *      children of live love and label - check!
  *    a permanent sanctuary (a save place for the clan)
- *    finish all damn education
+ *    finish all damn education - check!
  *    collect enough money
  *      aha. llf. (straight-line.org)
- *        enddustries skateboarding
- *        skateshop indonesia
- *        endhonesa online store
- *        surabaya skateboarding
+ *        enddustries skateboarding - check!
+ *        skateshop indonesia - check!
+ *        endhonesa online store - check!
+ *        surabaya skateboarding - check!
  *      the king's nft project
  *    more than 10 giga staked currency
  *    live abroad, write and publish some book
@@ -60,7 +61,7 @@
  *  warm regards,
  *
  *  @MyReceipt - aha. llf.
- *  crot.straight-line.org/47/74/
+ *  crot.straight-line.org/
  *
  *  next... 01-
 */
